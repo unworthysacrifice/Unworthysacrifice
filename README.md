@@ -5,8 +5,8 @@
 <a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits"  src="https://hits.sh/github.com/unworthysacrifice.svg?style=plastic&label=Offerings&color=F97F6F&labelColor=fff8c2"/></a> <a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits" src="https://hits.sh/github.com/unworthysacrifice.svg?style=plastic&label=Naiveness&color=F97F6F&labelColor=fff8c2"/></a>
 </p>
 <p align="center">
- <br> <img src="https://files.catbox.moe/3qwh86.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#F8796B}{\textsf{i know its }}$ $\color{#FFF2A8}{\textsf{not a healthy way }}$ $\color{#F8796B}{\textsf{ to feel,  }}$ <br> 
-  $\color{#FFF2A8}{\textsf{but to be mistreated}}$ $\color{#F8796B}{\textsf{would at least mean}}$ $\color{#FFF2A8}{\textsf{ Im real :(!!  }}$  <br> 
+ <br> <img src="https://files.catbox.moe/3qwh86.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#F8796B}{\textsf{will you be my saivor? }}$ $\color{#FFF2A8}{\textsf{(from my}}$ $\color{#F8796B}{\textsf{bad behavior?)  }}$ <br> 
+  $\color{#FFF2A8}{\textsf{do you see my danger?}}$ $\color{#F8796B}{\textsf{(do you see}}$ $\color{#FFF2A8}{\textsf{my danger?)}}$  <br> 
 
 
 <p align="center">  
