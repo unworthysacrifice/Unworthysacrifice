@@ -5,8 +5,10 @@
 <a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits"  src="https://hits.sh/github.com/unworthysacrifice.svg?style=plastic&label=Offerings&color=F97F6F&labelColor=fff8c2"/></a> <a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits" src="https://hits.sh/github.com/unworthysacrifice.svg?style=plastic&label=Naiveness&color=F97F6F&labelColor=fff8c2"/></a>
 </p>
 <p align="center">
- <br> <img src="https://files.catbox.moe/3qwh86.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#F8796B}{\textsf{will you be my saivor? }}$ $\color{#FFF2A8}{\textsf{(from my}}$ $\color{#F8796B}{\textsf{bad behavior?)  }}$ <br> 
-  $\color{#FFF2A8}{\textsf{do you see my danger?}}$ $\color{#F8796B}{\textsf{(do you see}}$ $\color{#FFF2A8}{\textsf{my danger?)}}$  <br> 
+ <br> <img src="https://files.catbox.moe/3qwh86.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#F8796B}{\textsf{4. "You found us.}}$ $\color{#FFF2A8}{\textsf{you came while
+We were sleeping,}}$ $\color{#F8796B}{\textsf{you talked with
+Warm familiarity,}}$ <br> 
+  $\color{#FFF2A8}{\textsf{And I}}$ $\color{#F8796B}{\textsf{Threw up at}}$ $\color{#FFF2A8}{\textsf{your feet."}}$  <br> 
 
 
 <p align="center">  
