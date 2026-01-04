@@ -10,7 +10,7 @@
 
 
 <p align="center">  
-  <img src="https://files.catbox.moe/rfawc2.png" alt="slimeknightt" style="height: 400px; width: 600px" />
+  <img src="https://files.catbox.moe/ru2hfc.png" alt="slimeknightt" style="height: 395px; width: 544px" />
 </p>
 <p align="center">
 <a href="https://rentry.co/blissfullyunaware">rentry</a>
@@ -23,7 +23,7 @@
 </p>
 
 <p align="center">  
-  <img src="https://files.catbox.moe/0y9ejp.gif" alt="slimeknightt" style="height: 60px; width: 100px" />   <img src="https://files.catbox.moe/i60or7.png" alt="slimeknightt" style="height: 60px; width: 100px" /> <img src="https://files.catbox.moe/lv015u.gif" alt="slimeknightt" style="height: 60px; width: 100px" /> 
+  <img src="https://files.catbox.moe/565ijz.gif" alt="gif1" style="height: 60px; width: 100px" />   <img src="https://files.catbox.moe/i60or7.png" alt="slimeknightt" style="height: 60px; width: 100px" /> <img src="https://files.catbox.moe/lv015u.gif" alt="slimeknightt" style="height: 60px; width: 100px" /> 
 </p>
 
 <p align="center"> 
