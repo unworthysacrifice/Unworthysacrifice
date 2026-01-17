@@ -16,7 +16,7 @@ Warm familiarity,}}$ <br>
 </p>
 
 <p align="center">
-<a href="https://rentry.co/blissfullyunaware">rentry</a> . . . <a href="https://unworthysacrifice.straw.page/">Strawpage (New!)</a> 
+<a href="https://rentry.co/blissfullyunaware">rentry</a> . . . <a href="https://averylings.straw.page">Strawpage (NEW NEW AVERY THEMED!)</a> 
 </p>
 <p align="center">
  <br> <img src="https://files.catbox.moe/8wfhjn.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#FFF2A8}{\textsf{Hello, my name is Clemmie or clem please check out the links}}$  <img src="https://files.catbox.moe/dawe4e.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
