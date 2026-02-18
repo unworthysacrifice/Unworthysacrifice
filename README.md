@@ -5,10 +5,8 @@
 <p align="center"> 
 <img src="https://files.catbox.moe/411sx4.png" alt="divider" style="height: 10px; width: 700px" /> 
   </p>
-<p align="center"> 
-<a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits"  src="https://hits.sh/github.com/unworthysacrifice.svg?style=plastic&label=Offerings&color=F97F6F&labelColor=fff8c2"/></a> <a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits" src="https://hits.sh/github.com/unworthysacrifice.svg?style=plastic&label=Naiveness&color=F97F6F&labelColor=fff8c2"/></a>
-</p>
-
+  <p align="center"> 
+𓐇   ᣟ݂ ׁׅ֒  ܔ <a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits" src="https://hits.sh/github.com/unworthysacrifice.svg?label=Icicles&color=98184A&labelColor=e3d5c2"/></a>   ͜͝    <a href="https://hits.sh/github.com/unworthysacrifice/"><img alt="Hits" src="https://hits.sh/github.com/unworthysacrifice.svg?label=Forgiveness&color=302353&labelColor=e3d5c2"/></a>  ී᳝᳝𐑞
 <p align="center">  
   <img src="https://files.catbox.moe/422llc.png" alt="pls dont leave" style="height: 395px; width: 544px" />
 </p>
@@ -17,7 +15,7 @@
 <a href="https://rentry.co/blissfullyunaware">rentry</a> . . . <a href="https://averylings.straw.page">Strawpage (NEW NEW AVERY THEMED!)</a> 
 </p>
 <p align="center">
- <br> <img src="https://files.catbox.moe/8wfhjn.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#D2944E}{\textsf{hi!, my name is Clemmie or clem please ((DONT)) check out the links}}$  <img src="https://files.catbox.moe/dawe4e.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
+ <br> <img src="https://files.catbox.moe/8wfhjn.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#D2944E}{\textsf{ ᩧ 𓈒clemmie, or clem..     ྀི   ͜𓈒 ࣪   ⠀check the links}}$  <img src="https://files.catbox.moe/dawe4e.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
    <br> $\color{#D2944E}{\textsf{ C!quackity enjoyer. wss get outtt pls }}$ <br> 
 
 <p align="center"> 
