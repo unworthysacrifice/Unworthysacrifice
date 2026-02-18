@@ -15,8 +15,8 @@
 <a href="https://rentry.co/blissfullyunaware">rentry</a> . . . <a href="https://averylings.straw.page">Strawpage (NEW NEW AVERY THEMED!)</a> 
 </p>
 <p align="center">
- <br> <img src="https://files.catbox.moe/8wfhjn.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#D2944E}{\textsf{ ᩧ 𓈒clemmie, or clem..     ྀི   ͜𓈒 ࣪   ⠀check the links}}$  <img src="https://files.catbox.moe/dawe4e.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
-   <br> $\color{#D2944E}{\textsf{ C!quackity enjoyer. wss get outtt pls }}$ <br> 
+ <br> <img src="https://files.catbox.moe/8wfhjn.gif" alt=":D" style="height: 20px; width: 20px" />   $\color{#4F2C6D}{\textsf{ ᩧ 𓈒clemmie, or clem..     ྀི   ͜𓈒 ࣪   ⠀check the links}}$  <img src="https://files.catbox.moe/dawe4e.gif" alt=":D" style="height: 20px; width: 20px" />  <br> 
+   <br> $\color{#4F2C6D}{\textsf{ C!quackity enjoyer. wss get outtt pls }}$ <br> 
 
 <p align="center"> 
 <img src="https://files.catbox.moe/411sx4.png" alt="divider" style="height: 10px; width: 700px" /> 
